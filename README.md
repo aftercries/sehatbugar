@@ -1,2 +1,0 @@
-# sehatbugar
-olahraga bareng yuk
